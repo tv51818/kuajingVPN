@@ -12,7 +12,7 @@
 > **SEO 贴士：** 针对新手卖家的搜索习惯，提供免费试用入口可显著提高转化率。
 
 ### **【专属邀请码：91729535】**
-* **[🚀 立即领取 3 天 VIP 免费试用]**：[点击下载闪连客户端](https://slaclouds.com/download?inviteCode=91729535&lang=zh-CN)
+* **[🚀 填写邀请码即可领取 3 天 VIP 免费试用]**：[点击下载闪连客户端](https://slaclouds.com/download?inviteCode=91729535&lang=zh-CN)
 * **[🌍 跨境电商 VPN 高速下载通道]**：[官网下载地址](https://slaclouds.com/download?inviteCode=91729535&lang=zh-CN)
 
 ---
